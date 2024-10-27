@@ -18,6 +18,7 @@ call me suguru or whoever my skin is
 - i collect dolls ^.^
 - don't speak to me only to vent . i do not care .
 - no dni , but don't use that as a way to act like a freak .
+- [this is also me.](https://github.com/malevolenttshrine)
 - rentry and strawpage to come n_n
   
 𓆩♱𓆪
