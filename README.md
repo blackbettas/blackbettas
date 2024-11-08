@@ -11,7 +11,7 @@
 
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=blackbettas&color=101831&label=+consumed+curses🖤)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=blackbettas&color=101831&label=+consumed+curses🖤)
 
 <!---
 pastor-geto/pastor-geto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
