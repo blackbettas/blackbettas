@@ -2,7 +2,11 @@
 <p align="center">
 <b>🖤🤍</b>
  <br><br>
-  <img src="https://github.com/user-attachments/assets/f036148d-5a3c-440d-b108-d28e7287b98b">
+
+<p align="middle">
+ <img src="https://github.com/user-attachments/assets/b1c57a05-b9e1-4fa0-bf44-a08dfe119001" width="200" />
+  <img src="https://github.com/user-attachments/assets/57606dad-db2a-4a0c-a59b-a2deaf712a36" width="200" /> 
+</p>
 
   <p align="center">
   <b>male . 18 .</b>
