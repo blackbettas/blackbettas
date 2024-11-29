@@ -11,7 +11,7 @@
   <p align="center">
   <b>male . 18 .</b>
   <p align="center">
-  <b>rentry to come soon ^.^</b>
+  <b> ^.^</b>
 
 </p>
 
