@@ -1,7 +1,5 @@
 
-<p align="center">
-<b>🖤🤍</b>
- <br><br>
+
 
 <p align="middle">
  <img src="https://github.com/user-attachments/assets/b1c57a05-b9e1-4fa0-bf44-a08dfe119001" width="200" />
