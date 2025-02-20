@@ -2,8 +2,7 @@
 
 
 <p align="middle">
- <img src="https://github.com/user-attachments/assets/b1c57a05-b9e1-4fa0-bf44-a08dfe119001" width="200" />
-  <img src="https://github.com/user-attachments/assets/57606dad-db2a-4a0c-a59b-a2deaf712a36" width="200" /> 
+ <img src="https://github.com/user-attachments/assets/2526fc80-e28d-43aa-8caa-c4f49bb60fa9" width="200" />
 </p>
 
   <p align="center">
@@ -13,7 +12,7 @@
 
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=blackbettas&color=101831&label=+consumed+curses🖤)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤ![](https://komarev.com/ghpvc/?username=blackbettas&color=101831&label=+curses🖤)
 
 <!---
 pastor-geto/pastor-geto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
