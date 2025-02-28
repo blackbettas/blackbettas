@@ -2,17 +2,15 @@
 
 
 <p align="middle">
- <img src="https://github.com/user-attachments/assets/2526fc80-e28d-43aa-8caa-c4f49bb60fa9" width="200" />
+ <img src="https://github.com/user-attachments/assets/be1ff936-4a27-41ac-b81e-8a0528fb7e9f" width="200"  />
 </p>
-
   <p align="center">
-  <b>male . 18 .</b>
+  <b>male ৎ 19 .</b>
   <p align="center">
   <b> ^.^</b>
 
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=blackbettas&color=101831&label=+curses🖤)
 
 <!---
 pastor-geto/pastor-geto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
